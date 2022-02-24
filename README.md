@@ -1,6 +1,27 @@
 # gokadv1985
 ## BOOK: A True Story: Chang Hsiang Chien’s Adventures on the Alien Planet Gok in 1985: A Chinese farmer abducted to an alien planet for a month brings back never-before-seen secrets
 
+## FOREWORD
+
+This is the true story of a Chinese farmer who was abducted to an alien planet for a month in 1985. He was 19 years old, very youthful, and very strong. His name was Chang Hsiang Chien, and he lived in a village in Lujiang County, Anhui Province, China.
+
+The alien planet was called Gok and his abductors were a small alien species - about 1 meter tall, with smooth skin, refined appearance, highly developed technology, and advanced physical field control techniques.
+
+Contrary to the information we usually get, these aliens usually have no noble purpose in abducting earthlings, instead doing so purely for entertainment. They collect information about intelligent life on Earth, and other planets, and use this information to create virtual playmates for the entertainment of alien men and women. Most people on their planet have nothing better to do than to play all day. Only a very small number of people are engaged in science and research.
+
+During a month of contact, the aliens showed Chang advanced field control technology, shocking human factories, and immortality technology, virtual people and virtual entertainment, bizarre alien natural environments, and even more bizarre alien social morality and order... In fact, aliens have no morality, but they can live in harmony with each other with the help of high technology.
+
+At the same time, Chang, as a research subject, is subjected to cruel treatment by the aliens, including sexual abuse by various creatures, exposing the ugly, cruel, indifferent, and lascivious dark side of the aliens under the surface of advanced technology.
+
+Fortunately, Chang had experiences with more advanced aliens in his childhood, and these memories were valuable to these aliens. As a result, they developed a good relationship with Chang. With the help of the aliens' extremely advanced medical technology, Chang was able to return to Earth in a healthy and fully intact. Also, with the help of these aliens, some key information about their advanced technology was successfully brought back.
+
+The alien secrets brought back by Chang are highly innovative and enlightening. This included the principle of light-speed flying saucers. The principle is to protect the occupants under ultra-mobility. Other secrets included: The principle of alien global instantaneous transfer technology, the alien planet political order, and the principles of alien immortality technology. In particular, the secrets of cosmic physics, and the secrets of time … were revealed to him by the aliens. All of these were previously unheard of.
+
+These extremely advanced cutting-edge technologies and principles are refreshing. It could bring fundamental progress and change to human society.
+
+Again, this is not a science fiction novel, but a true story. But the truth is often more absurd than fiction.
+
+
 ## PREFACE
 When I was about seven or eight years old, I drove the geese to the beach by the river and let them go find something to eat, and suddenly I saw several aerosol-like objects moving quickly in front of my eyes, and one of them was rushing towards me. I suddenly felt a humming sound in my head, my eyes darkened, and I squatted down involuntarily. It took me a long time to wake up, and for the mist in front of my eyes to disappear completely.
 
